@@ -5,6 +5,7 @@
 > Wensx's blog
 
 - 蒟蒻
+- ~~"善淫"~~
 - 无趣
 
 [GitHub](https://github.com/wensoulx)
